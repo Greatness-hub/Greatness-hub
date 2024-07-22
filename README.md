@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Greatness
 - 👀 Filmmaker/Video Content Creator & Social Entrepreneur
-- 🌱 I’m about to publish an important ebook for video content production and distribution
+- 🌱 Get early access to my ebook for video content production and distribution here!
 - 💞️ I’m looking to share ideas that make meaningful impact
 - 📫 LinkedIn: Greatness Inuaeyen + Instagram:Greatness Isaac
 - 😄 Pronouns: He
